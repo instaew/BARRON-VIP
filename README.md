@@ -1,2 +1,0 @@
-# BARRON-VIP
-FILS
